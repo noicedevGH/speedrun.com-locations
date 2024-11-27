@@ -1,1 +1,1 @@
-# speedrun.com-locations.github.io
+# speedrun.com-locations
